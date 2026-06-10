@@ -1,4 +1,4 @@
-# 
+# Instantáneo trend-following bot plantillas para Mac OS | Actualizado trend-following bot plantillas para PC Windows. Con agregación multi-DEX y escaneo de arbitraje — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
